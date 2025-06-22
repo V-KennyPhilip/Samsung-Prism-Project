@@ -1,4 +1,5 @@
 My Offer Letter link: https://drive.google.com/file/d/1Du7FCjEhqQpKv2X6UJtyymE8t5-UTVye/view
+My Completion certificates: https://drive.google.com/drive/folders/1f5gXBZdTiknAqZKbNQYAjRsXUoC_4WOq?usp=drive_link
 
 Result Super-Resolved Image: https://github.com/V-KennyPhilip/Samsung-Prism-Project/blob/main/super_resolved_image.png 
 
